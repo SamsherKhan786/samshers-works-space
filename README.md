@@ -1,4 +1,4 @@
-# samshers-works-space
+# samshers Khan 
 Myself Samsher Khan, I belong to Mumbai (Maharashtra).
 
 I had an inclination towards IT, that y I joined VEs College and completed my bachelor in Computer Science. After that I did my Post graduation from Khalsa College in the same stream.
